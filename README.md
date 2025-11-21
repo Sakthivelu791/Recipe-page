@@ -1,2 +1,2 @@
 # Recipe-page
-Feedback to sakthiveluu791@gmail.com
+Feedback to sakthivelu791@gmail.com
